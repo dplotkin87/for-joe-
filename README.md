@@ -1,3 +1,4 @@
 # for-joe-
-hubris check 
-Cheers mate.  Enjoy. 
+Hubris Check.  
+Cheers mate.  
+Enjoy. 
